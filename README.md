@@ -1,1 +1,1 @@
-# Mi-band-4-WatchFace---Diablo2
+# Mi-band-4-WatchFace
